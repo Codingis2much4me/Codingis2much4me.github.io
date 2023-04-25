@@ -1,6 +1,6 @@
 # Profile Page
 ## About Me:
-![Photo](https://www.freepik.com/free-vector/it-takes-two-tango-idiom_2956131.htm#query=cartoon%20face&position=4&from_view=keyword&track=ais)
+![Photo](https://cdna.artstation.com/p/assets/images/images/040/951/926/large/maddie_creates-jj-ver2.jpg?1630351796)
 #### Maanas Bhaya
 I am 18 years old. I am currently pursuing my [Bachelor's degree](https://en.wikipedia.org/wiki/Bachelor%27s_degree) in Computer Science and Engineering at the [Indian Institute of Technology, Goa](https://iitgoa.ac.in)
 
